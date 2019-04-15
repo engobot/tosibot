@@ -1,0 +1,2 @@
+# tosibot
+gümbür  gümbür geliyom
